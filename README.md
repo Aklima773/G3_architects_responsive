@@ -1,0 +1,1 @@
+# G3_architects_responsive
